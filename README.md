@@ -37,7 +37,7 @@
 ### 📫 Let's Connect
 
 - 📧 Email: `frekkiemaatla04@gmail.com`
-- 💼 LinkedIn: [linkedin.com/in/mphoyaonefrekkie](https://linkedin.com/in/mphoyaonefrekkie)
+- 💼 LinkedIn: [linkedin.com/in/mphoyaonefrekkie](https://www.linkedin.com/in/mphoyaone-frekkie-4a89032b8/)
 - 🌐 Portfolio (if available): `Coming soon...`
 
 ---
