@@ -38,7 +38,7 @@
 
 - 📧 Email: `frekkiemaatla04@gmail.com`
 - 💼 LinkedIn: [linkedin.com/in/mphoyaonefrekkie](https://www.linkedin.com/in/mphoyaone-frekkie-4a89032b8/)
-- 🌐 Portfolio (if available): `Coming soon...`
+- 🌐 Portfolio (https://dreamy-tarsier-1d1ae0.netlify.app/)
 
 ---
 
